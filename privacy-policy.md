@@ -25,4 +25,4 @@ Our app is safe for users of all ages and does not collect any data from childre
 We may update this privacy policy from time to time. Any updates will be reflected here.
 
 **9. Contact Us**  
-If you have any questions about this privacy policy or other concerns, please contact us .
+If you have any questions about this privacy policy or other concerns, please contact us at yatayattayari@gmail.com.
