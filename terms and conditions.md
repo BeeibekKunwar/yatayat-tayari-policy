@@ -25,4 +25,4 @@ We reserve the right to terminate or suspend access to the app for any user who 
 These Terms and Conditions are governed by and construed in accordance with the laws of Nepal. Any disputes arising from the use of this app will be subject to the jurisdiction of the courts in Nepal.
 
 **9. Contact Us**  
-If you have any questions or concerns about these Terms and Conditions, please contact us.
+If you have any questions or concerns about these Terms and Conditions, please contact us at yatayattayari@gmail.com
